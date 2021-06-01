@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Sai Krishna Kumar
+- 👀 I’m interested in playing games,reading books,travelling.
+- 🌱 I’m currently learning CSE 
+- 📫 How to reach me  rpss.saikrishnakumar@gmail.com
